@@ -11,3 +11,4 @@ Você pode entrar em contato comigo 📫
 
 ![](https://media1.tenor.com/m/zgttK6xorv0AAAAC/padre-horse-padre.gif)
 
+![](https://media1.tenor.com/m/NgZKu1T7b3sAAAAC/cachorro-n%C3%A3o-sei-se-comento-n%C3%A3o-sei-se-comento.gif)
